@@ -39,8 +39,12 @@ viento vuelve hacer como ayer para sentir el comienzo de mi vida,
 el comienzo de mi historia
 VIENTOOOOOOOO
 
-5. Mariana
-I was scared of dentists and the dark
-I was scared of pretty girls and starting conversations
-Oh, all my friends are turning green
-You're the magician's assistant in their dream
+3. Dorkas
+Your way
+I'm tryna understand these days
+I need to know if you're feelin' it or I'm wastin' my time
+Your way or mine
+You spent every second with him, you're takin' what you're givin'
+Your mother don't approve of the way that you've been livin'
+She says he puts you through it, you shouldn't let him do it
+And if there is a voice in your head, don't listen to it
