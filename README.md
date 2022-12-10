@@ -73,3 +73,23 @@ You can't decline
 Caviar and cigarettes
 Well versed in etiquette
 Extraordinarily nice
+
+5. Cesar 
+Roar!
+Tipe, tipe, zangalewa (World Cup! World Cup!)
+Tipe, tipe, zangalewa (World Cup! World Cup!)
+Tipe, tipe, zangalewa (World Cup! World Cup!)
+Tipe, tipe, zangalewa (World Cup! World Cup!)
+You're a good soldier, choosing your battles
+Pick yourself up and dust yourself off, get back in the saddle
+You're on the frontline, everyone's watching
+You know it's serious, we're getting closer, this isn't over
+
+6. Leonel Arturo
+Y por tu culpa, mujer
+Hoy solo vivo de cantina en cantina
+Armonía 10
+Cervecero yo soy y mi vida se va acabando
+En tragos, en noches y copas de licor
+Desesperado vivo en las cantinas
+Bebiendo, sufriendo, llorando por su amor
