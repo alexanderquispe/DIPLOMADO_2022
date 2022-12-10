@@ -60,3 +60,16 @@ Your mother don't approve of the way that you've been livin'
 She says he puts you through it, you shouldn't let him do it
 And if there is a voice in your head, don't listen to it
 
+4. Sebastian Esquives
+Killer
+She keeps her Moët et Chandon
+In her pretty cabinet
+"Let them eat cake, " she says
+Just like Marie Antoinette
+A built-in remedy
+For Khrushchev and Kennedy
+At anytime an invitation
+You can't decline
+Caviar and cigarettes
+Well versed in etiquette
+Extraordinarily nice
