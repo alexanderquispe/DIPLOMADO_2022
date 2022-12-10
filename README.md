@@ -49,6 +49,7 @@ Your mother don't approve of the way that you've been livin'
 She says he puts you through it, you shouldn't let him do it
 And if there is a voice in your head, don't listen to it
 
+
 3. Dorkas
 Your way
 I'm tryna understand these days
@@ -58,3 +59,4 @@ You spent every second with him, you're takin' what you're givin'
 Your mother don't approve of the way that you've been livin'
 She says he puts you through it, you shouldn't let him do it
 And if there is a voice in your head, don't listen to it
+
