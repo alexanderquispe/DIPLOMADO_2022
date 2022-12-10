@@ -49,12 +49,14 @@ Your mother don't approve of the way that you've been livin'
 She says he puts you through it, you shouldn't let him do it
 And if there is a voice in your head, don't listen to it
 
-4. Miguel New Song 
-Wake up (wake up)
-Grab a brush and put a little make-up
-Hide the scars to fade away the shake-up (hide the scars to fade away the-)
-Why'd you leave the keys upon the table?
-Here you go create another fable, you wanted to
-Grab a brush and put a little make-up, you wanted to
-Hide the scars to fade away the shake-up, you wanted to
-Why'd you leave the keys upon the table? You wanted to
+
+3. Dorkas
+Your way
+I'm tryna understand these days
+I need to know if you're feelin' it or I'm wastin' my time
+Your way or mine
+You spent every second with him, you're takin' what you're givin'
+Your mother don't approve of the way that you've been livin'
+She says he puts you through it, you shouldn't let him do it
+And if there is a voice in your head, don't listen to it
+
