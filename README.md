@@ -60,3 +60,38 @@ Your mother don't approve of the way that you've been livin'
 She says he puts you through it, you shouldn't let him do it
 And if there is a voice in your head, don't listen to it
 
+4. Sebastian Esquives
+Killer
+She keeps her Moët et Chandon
+In her pretty cabinet
+"Let them eat cake, " she says
+Just like Marie Antoinette
+A built-in remedy
+For Khrushchev and Kennedy
+At anytime an invitation
+You can't decline
+Caviar and cigarettes
+Well versed in etiquette
+Extraordinarily nice
+
+5. Cesar 
+Roar!
+Tipe, tipe, zangalewa (World Cup! World Cup!)
+Tipe, tipe, zangalewa (World Cup! World Cup!)
+Tipe, tipe, zangalewa (World Cup! World Cup!)
+Tipe, tipe, zangalewa (World Cup! World Cup!)
+You're a good soldier, choosing your battles
+Pick yourself up and dust yourself off, get back in the saddle
+You're on the frontline, everyone's watching
+You know it's serious, we're getting closer, this isn't over
+
+6. Cesar 
+Roar!
+Tipe, tipe, zangalewa (World Cup! World Cup!)
+Tipe, tipe, zangalewa (World Cup! World Cup!)
+Tipe, tipe, zangalewa (World Cup! World Cup!)
+Tipe, tipe, zangalewa (World Cup! World Cup!)
+You're a good soldier, choosing your battles
+Pick yourself up and dust yourself off, get back in the saddle
+You're on the frontline, everyone's watching
+You know it's serious, we're getting closer, this isn't over
